@@ -1,2 +1,2 @@
 # Resume
-[Angad's Resume](https://drive.google.com/file/d/1iVhnhy8CzOjH7_lK4NFPut5GzUdDKdUv/view?usp=sharing)
+[Angad's Resume](https://drive.google.com/file/d/1amhjmKFGNGmFwJ1H2WH_id9237Rs-CXn/view?usp=sharing)
